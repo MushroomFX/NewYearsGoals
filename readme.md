@@ -2,6 +2,7 @@
 
 ### Not started yet
 
++ *meeting a special person :3*
 + more sport
 + voice feminization
 + getting into makeup 
