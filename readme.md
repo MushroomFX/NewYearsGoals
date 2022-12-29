@@ -1,4 +1,4 @@
-# Goals for new year:
+# *Goals for new year:*
 
 ### Not started yet
 
@@ -19,4 +19,4 @@
 
 
 
-[](https://cdn.betterttv.net/emote/60291cf782b7c45eb1c942cd/3x)
+[:^)](https://cdn.betterttv.net/emote/60291cf782b7c45eb1c942cd/3x)
