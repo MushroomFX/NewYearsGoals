@@ -1,8 +1,8 @@
-# *Goals for new year:*
+# **Goals for new year:**
 
 ### Not started yet
 
-+ *meeting a special person :3*
++ **meeting a special person :3**
 + more sport
 + voice feminization
 + getting into makeup 
