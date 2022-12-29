@@ -5,14 +5,13 @@
 + more sport
 + voice feminization
 + getting into makeup 
-+ getting a driving license 
 + learning dancing 
-+ Making and publishing a software / program 
 + control my ocd better
 
-### Doing
+### (already) doing 
 
-+ empty so far
++ getting a driving license
++ Making and publishing a software / program to steam
 
 ### Acchived
 
